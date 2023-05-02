@@ -5,4 +5,4 @@ The content includes determining the delay and calibrating the remaining paramet
 
 
 To be updated in the next two months.
-If there are any problems, you can contact me via email: 2746918313@qq.com or 230228916@seu.edu.cn.
+If there are any problems, you can contact me via email: 2746918313@qq.com.
